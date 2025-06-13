@@ -1,7 +1,7 @@
 
 # 💫 About Me:
 I'm currently working in cybersecurity.<br>
-I Books never betray, unlike some friends.
+Books never betray, unlike some friends.
 <br>
 
 ## 🌐 Socials:
